@@ -1,8 +1,8 @@
-👋 Hi, I’m @WM-DarkLight
-
 🧠 Who Am I?
 
-I’m W.M. DarkLight — a writer, worldbuilder, and digital creator behind The Subterranean Saga, a post-apocalyptic underground universe where survival, mystery, and rebellion collide. I'm also exploring the crossroads of storytelling and software through apps inspired by my worlds.
+👋 Hi, I’m @WM-DarkLight
+
+I’m a writer, worldbuilder, and digital creator behind The Subterranean Saga, a post-apocalyptic underground universe where survival, mystery, and rebellion collide. I'm also exploring the crossroads of storytelling and software through apps inspired by my worlds.
 
 👀 I’m Interested In
 
